@@ -7,3 +7,5 @@ eu sou a taynara de souza luz
 
 ### voce pode entrar em contato comigo 📫
 taynarajung24@gmail.com
+
+![](https://media1.tenor.com/m/QLFDNb2aPRgAAAAC/bts-bts-hearts.gif)
